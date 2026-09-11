@@ -25,3 +25,10 @@ I tend to take things too seriously sometimes.
 Example:
 
 I like to think deeply about things, but I don't want to overthink everything.
+
+
+## Speaking
+
+- Do you think it's possible to think deeply without overthinking?
+- What's the difference between thinking deeply and taking something too seriously?
+- Do you tend to take things too seriously?
