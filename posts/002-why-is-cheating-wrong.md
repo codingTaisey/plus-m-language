@@ -219,3 +219,101 @@ Rather than protecting the relationship itself, we protect the conditions in whi
 People who cannot tolerate this kind of intensity — in other words, people who cannot tolerate the inevitable instability of romantic love — begin to demand permanence from their relationships and their feelings.
 
 And that is how they develop a kind of moral allergy to cheating.
+
+## Useful expressions
+
+### 1. take something for granted
+
+「〜を当然のこととして考える」
+
+今回の文章では、
+
+> Cheating is wrong. This is generally taken for granted.
+
+のように使われています。
+
+Speakingでは、
+
+> We tend to take certain things for granted.
+
+のように使えます。
+
+---
+
+### 2. make its way into ~
+
+「〜の中に入り込む」「徐々に〜に取り入れられる」
+
+今回の文章では、
+
+> how the norms of marriage have made their way into romantic relationships
+
+という形です。
+
+例えば、
+
+> Social media has made its way into almost every part of our lives.
+
+「SNSは私たちの生活のほとんどあらゆる部分に入り込んでいる。」
+
+---
+
+### 3. be drawn to ~
+
+「〜に惹かれる」
+
+今回の文章では、
+
+> You are drawn to them.
+
+です。
+
+例えば、
+
+> I'm often drawn to people who think differently from me.
+
+「自分とは違う考え方をする人に惹かれることが多い。」
+
+---
+
+### 4. regardless of ~
+
+「〜に関係なく」「〜にかかわらず」
+
+今回の文章では、
+
+> Regardless of how you feel today, there are responsibilities that you are expected to continue fulfilling.
+
+という形です。
+
+Speakingでもかなり使いやすい表現です。
+
+> I try to do what I think is right, regardless of how I feel.
+
+---
+
+### 5. the order gets reversed
+
+「順序が逆になる」
+
+今回の文章では、
+
+> That order gets reversed.
+
+という非常にシンプルな使い方をしています。
+
+例えば、
+
+> At some point, the order gets reversed.
+
+「ある時点で、順序が逆になる。」
+
+## Speaking
+
+Try to answer these questions without looking at the English translation.
+
+1. Why do you think cheating is considered wrong?
+
+2. Do you agree that the norms of marriage are sometimes applied to romantic relationships?
+
+3. What do you think is more important in a romantic relationship: stability or freedom?
