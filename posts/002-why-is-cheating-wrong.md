@@ -106,3 +106,116 @@
 関係を守ることより、慕情が自由に生起できる条件を守る。
 
 こうした強度に耐えられない、つまり、恋愛の必然的な不安定性に耐えられない人たちが、関係や感情に不変性を求めて、道徳的な浮気アレルギーを発症する。
+
+
+## English
+
+### Why Is Cheating Wrong?
+
+Cheating is wrong.
+
+At least, under today's norms surrounding romantic relationships, this is generally taken for granted.
+
+Being in a relationship and getting involved with someone else.
+Being attracted to someone else.
+Being unable to keep loving just one person.
+
+These things are labeled as "betrayal," "dishonesty," or simply "being a terrible person."
+
+Of course, there are ethical problems with lying, breaking an agreement, and deceiving someone while benefiting yourself.
+
+But cheating seems to provoke a much stronger sense of disgust than those things alone can explain.
+
+Sometimes, the mere fact that someone has cheated once is enough for people to reject their entire character.
+
+Why?
+
+Do we really hate deception?
+
+Or is it the fact that someone failed to keep loving only one person that we cannot tolerate?
+
+To think about this question, we first need to look at how the norms of marriage have made their way into romantic relationships.
+
+### The Norms of Marriage
+
+The institution of marriage requires stability.
+
+Marriage involves more than just a sexual or romantic relationship.
+
+It involves sharing a life, managing finances, owning property, supporting each other, raising children, and caring for one another.
+
+In other words, marriage involves a long-term joint project that requires a certain degree of predictability.
+
+You cannot simply say, "I love you today, so I'll fulfill my responsibilities," and then, "I don't love you anymore, so I'll walk away from everything."
+
+That's why, in marriage, promises that exist independently of one's feelings are important.
+
+Regardless of how you feel today, there are responsibilities that you are expected to continue fulfilling.
+
+In this context, there is an institutional value in making a relationship last.
+
+Exclusivity can also be understood as part of this.
+
+When two people share their lives, finances, and the responsibility of raising children, a sexual relationship with a third person can disrupt the predictability of that shared community.
+
+So there is a certain rational basis for expecting stability and exclusivity in marriage.
+
+The problem is that these expectations are applied to romantic relationships in exactly the same way.
+
+### Romance Is Different from Marriage
+
+We tend to think of romance and marriage as almost consecutive stages of the same kind of relationship.
+
+You fall in love, start dating, deepen the relationship, and eventually get married.
+
+As a result, a romantic partner is often treated as a potential future spouse.
+
+And the stability and exclusivity expected in marriage are demanded from the very beginning of a romantic relationship.
+
+But romance is originally based on a different principle from marriage.
+
+What makes a romantic relationship possible, first and foremost, is the spontaneous emergence of feelings.
+
+You want to see them.
+
+You want to touch them.
+
+You want to know them.
+
+You want to talk to them.
+
+You want to be near them.
+
+You are drawn to them.
+
+A romantic relationship begins because these feelings arise spontaneously.
+
+Originally, the order is supposed to be:
+
+"I love you, so you're my partner."
+
+But once maintaining the relationship becomes a moral obligation, that order gets reversed.
+
+"You're my partner, so I have to keep loving you."
+
+"Since we're together, I shouldn't be attracted to anyone else."
+
+"Once I've chosen you, I have to keep choosing you."
+
+A relationship was supposed to emerge from our feelings, but now the relationship itself begins to constrain those feelings.
+
+Romance becomes a contract.
+
+The value of romance does not lie in having a guaranteed future.
+
+It lies in two people who have no guarantee of a future desiring each other in the present.
+
+Rather than guaranteeing each other security, we exchange intensity.
+
+Rather than demanding permanence, we learn to tolerate the freedom of another person who may change.
+
+Rather than protecting the relationship itself, we protect the conditions in which desire can arise freely.
+
+People who cannot tolerate this kind of intensity — in other words, people who cannot tolerate the inevitable instability of romantic love — begin to demand permanence from their relationships and their feelings.
+
+And that is how they develop a kind of moral allergy to cheating.
