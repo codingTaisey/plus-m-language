@@ -25,7 +25,7 @@ I tend to take things too seriously sometimes.
 Example:
 
 I like to think deeply about things, but I don't want to overthink everything.
-
+I dont like to think deeply.
 
 ## Speaking
 
